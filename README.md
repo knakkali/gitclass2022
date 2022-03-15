@@ -13,3 +13,7 @@ and maybe a nice picture
 
 
 Tuesday morning ---- raining 
+
+
+yesterday it was sunny 
+
